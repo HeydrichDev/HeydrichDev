@@ -1,4 +1,4 @@
-#HeydrichDev😎😎
+HeydrichDev😎😎
 ### Un simple chico con el sueño de ser un buen programador, y hacer amistades que tambien les gusten este maravilloso mundo de la programacion.🤓🎉
 ### A simple boy with the dream of being a good programmer, and making friends who also like this wonderful world of programming.🤓🎉
 <!---
